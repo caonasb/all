@@ -5,22 +5,22 @@
 ### [点击下载yandex浏览器](https://browser.yandex.com/)
 
 ### 爆料网地址发布页
-### 【地址1】：https://baoliaowang8.buzz
+### 【地址1】：https://baoliaowang86.buzz
 
 ### 91国产精品地址发布页
-### 【地址1】：https://91guochanjp6.buzz
+### 【地址1】：https://91guochanjp67.sbs
 
 ### 粉嫩小姐姐地址发布页
-### 【地址1】：https://fennenxiaojj32.buzz/粉嫩小姐姐
+### 【地址1】：https://fennenxiaojj33.buzz/粉嫩小姐姐
 
 ### 黄瓜社区地址发布页
 ### 【地址1】：https://cangjingge11.buzz/黄瓜社区
 
 ### 蜜汁TV地址发布页
-### 【地址1】：https://mizhitv1.buzz
+### 【地址1】：https://mizhishulema10.buzz
 
 ### 少女集中营地址发布页
-### 【地址1】：https://shaonvjizy12.buzz/jzy
+### 【地址1】：https://shaonv13.buzz/sd
 
 ### 超级淫先生地址发布页
 ### 【地址1】：https://chaojiyinxs50.buzz
