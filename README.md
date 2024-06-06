@@ -11,19 +11,19 @@
 ### 【地址1】：https://91guochanjp67.sbs
 
 ### 粉嫩小姐姐地址发布页
-### 【地址1】：https://fennenxiaojj33.buzz/粉嫩小姐姐
+### 【地址1】：https://fennenxiaojj33.buzz/fennenxiaojj
 
 ### 黄瓜社区地址发布页
-### 【地址1】：https://cangjingge11.buzz/黄瓜社区
+### 【地址1】：https://cangjingge11.buzz/hgsq
 
 ### 蜜汁TV地址发布页
-### 【地址1】：https://mizhishulema10.buzz
+### 【地址1】：https://woxihuanmizhihua.buzz
 
 ### 少女集中营地址发布页
-### 【地址1】：https://shaonv13.buzz/sd
+### 【地址1】：https://wxhsnhzndgs.buzz/haoshu
 
 ### 超级淫先生地址发布页
-### 【地址1】：https://chaojiyinxs50.buzz
+### 【地址1】：https://chaojiyinxs51.buzz
 
 ### 精品阁地址发布页
 ### 【地址1】：https://jingpinge.buzz
